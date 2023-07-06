@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @apinc14
 - 👀 I’m interested in ... the environment and software engineering 
-- 📫 How to reach me ... https://www.seopluswebtraffic.com
+- 📫 How to reach me ... 
 Act now before our prices go up, we currently have the most affordable rates compared to our competitors. 
 
 
